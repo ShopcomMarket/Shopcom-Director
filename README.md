@@ -6,5 +6,5 @@ Facebook : https://www.facebook.com/alaa.alhadji
 
 Instagram : https://www.instagram.com/alaa.alhadji
 
-✉️ : alaa.hadji@shopcom.tn
+✉️ : contact@shopcom.tn
 
