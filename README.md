@@ -12,4 +12,5 @@ Instagram : https://www.instagram.com/alaa.alhadji
 
 Shopcom Logo Design Story
 
-<img width="5000" height="5000" alt="shopcom logo design story" src="https://github.com/user-attachments/assets/8b9ee7a8-72bd-49fa-8f11-02b8d9999378" />
+<img width="5000" height="5000" alt="shopcom logo design story" src="https://github.com/user-attachments/assets/e2032986-bf79-46b5-8ab7-bf107efc3095" />
+
