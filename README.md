@@ -7,3 +7,6 @@ Facebook : https://www.facebook.com/alaa.alhadji
 Instagram : https://www.instagram.com/alaa.alhadji
 
 ✉️ : contact@shopcom.tn
+
+----------------------------------------------------------------------------------------------------------------------
+<img width="24500" height="12400" alt="logo_shopcom_title_arabic_horizental copy" src="https://github.com/user-attachments/assets/149aff07-79ce-4ab1-8ea1-fe9ee26038e0" />
